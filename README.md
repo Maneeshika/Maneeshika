@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **maneeshikapawananjali@gmail.com**
 
-- ⚡ Fun fact **Call me as Manee**
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
